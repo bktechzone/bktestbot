@@ -14,7 +14,7 @@
 
 Enjoy ;)
 
-[REPLIT](https://replit.com/@KabirJaipal/JUGNU-MUSIC?v=1)
+[REPLIT](https://replit.com/@KabirJaipal/A-Advance-Discord-Multi-Purpose-with-Moderation-Music-Fun-et?v=1)
 
 *Yes It Works on REPLIT*
 
